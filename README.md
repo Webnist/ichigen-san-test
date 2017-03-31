@@ -1,1 +1,0 @@
-# ichigen-san-test
